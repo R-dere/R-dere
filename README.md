@@ -4,3 +4,5 @@ I’m currently working on a few python projects and am currently learning C#. I
 - 📫 How to reach me: my E-mail is Corosv1e@keemail.me 
 - 😄 Pronouns: She/they, I'm genuinely not bothered though
 - ⚡ Fun fact: the username "rōdere" is the latin base word for corosive/corrosion, and means to eat through something slowly. I chose it as I have a penn testing hobby
+
+Not really on here much as I'm busy with college currently
